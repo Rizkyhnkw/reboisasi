@@ -1,2 +1,2 @@
 # reboisasi
-mari hijaukan repo🗿🗿
+mari hijaukan repo🗿
